@@ -14,7 +14,7 @@ Examen piloto
 [[Plan Dieta Antiinflamatoria](https://docs.google.com/document/d/18XO_Y-_L43yF029FUSdgwndGP2iKC1Ih0tfi_-wtZHs/edit?usp=drive_link)]
 
 ### Se adjunta una muestra de como llevar el control de pulsaciones
-[[Control Cardio](https://docs.google.com/spreadsheets/d/18ZFrqtXV6PdK-SDF7B2zwTQzFeVxEuWfnWKqscX2oB4/edit?usp=drive_link)]
+[[Control Cardio](https://docs.google.com/spreadsheets/d/162EQqE4c-VEuR2gcSE9J7fMXKW9gFu5KwspLwRf1MeM/edit?gid=0#gid=0)]
 
 ### Presentaciones sobre rutinas y ejercicios para mantener el físico ante cambios alimenticios.
 [[Presentaciones](https://gamma.app/docs/Cardio-para-Adultos-40-avio9ecqw17bjj0?mode=doc)]
